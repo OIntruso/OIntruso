@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @OIntruso
+- 👀 I’m interested in security
+- 🌱 I’m currently learning cooding
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me, you don't
